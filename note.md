@@ -1,0 +1,1 @@
+sefearea arasinda ki android ios mesefesi
